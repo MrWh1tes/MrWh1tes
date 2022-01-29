@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrWh1tes
+- 👀 I’m interested in learning new things as a hobby and who knows? maybe I finish as a programmer
+- 🌱 I’m currently learning web design
+- 📫 How to reach me ... not available yet, you can comment my projects
